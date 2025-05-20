@@ -29,7 +29,7 @@ Claim [**40% OFF**](https://theoptimizer.io/) on TheOptimizer Native, which save
 ](https://theoptimizer.io/)
 ## Try TheOptimizer Risk-Free with a 15-Day Free Trial
 
-Get a 15-Day Free Trial with this The Optimizer promo code and enjoy all the premium tools at $0 cost for 15 days.
+Get a **[15-Day Free Trial](https://theoptimizer.io/)** with this The Optimizer promo code and enjoy all the premium tools at $0 cost for 15 days.
 
 Test out features like automatic bid & budget changes, unlimited smart lists, and campaign creator across various traffic sources.
 
